@@ -1,0 +1,1 @@
+# CodingGame-Nintendo_Challenge
